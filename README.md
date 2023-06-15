@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @NemiJames
 - 👀 I am a Community Builder/Manager | Moderator | Ambassador 
 - 📫 How to reach me ... https://mssg.me/hb7zo
-- I am a personate community builder/manager and moderator both on discord and telegram, I have worked formany projects, I am flexible, I can work 10-16hours a day in-any time zone with the option to extend if needed.
+- I am a personate community builder/manager and moderator both on discord and telegram, I have worked for many projects, I am flexible, I can work 10-16hours a day in-any time zone with the option to extend if needed.
